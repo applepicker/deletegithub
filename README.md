@@ -1,0 +1,2 @@
+# deletegithub
+Festrostet Monopolisem
